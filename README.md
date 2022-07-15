@@ -1,1 +1,0 @@
-# PanelAdhan.github.io
